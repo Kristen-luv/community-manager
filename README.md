@@ -1,1 +1,1 @@
-my name is christiana
+My Name is christiana.
